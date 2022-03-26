@@ -1,4 +1,4 @@
-## <img src="https://github.com/farshadpyt/farshadpyt/blob/main/gifs/Clap.gif" width="30px"> Hi I'am [ᏃᎪᎪᏞ sᎥᏒ](https://github.com/farshadpyt) Welcome To Github Profile
+## <img src="https://github.com/farshadpyt/farshadpyt/blob/main/gifs/Hi.gif" width="30px"> Hi I'am [ᏃᎪᎪᏞ sᎥᏒ](https://github.com/farshadpyt) Welcome To Github Profile
 
 * 📚 Student
 
